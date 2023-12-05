@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nandmohan01
+- 👋 Hi, I’m Nandmohan
 - 👀 I’m interested in Business Development, Business Analysis
 - 🌱 I’m currently learning Business models and storytelling
 
